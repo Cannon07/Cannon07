@@ -8,6 +8,6 @@ I have an insatiable appetite for knowledge, and you'll often find me immersed i
 
 ### 🌟 Join the Journey
 
-I believe in the magic of shared experiences. Whether it's discussing the nuances of tech or swapping stories about building tech startups, navigating challenges, or fostering innovation, let's connect on [LinkedIn](https://www.linkedin.com/in/jay-shitre) or [Twitter](https://twitter.com/CANNON0710).
+I believe in the magic of shared experiences. Whether it's discussing the nuances of tech or swapping stories about building tech startups, navigating challenges, or fostering innovation, let's connect on [LinkedIn](https://www.linkedin.com/in/jay-shitre).
 
 Thanks for dropping by, fellow wanderer. Let's embark on this adventure of learning and innovation! 🚀
